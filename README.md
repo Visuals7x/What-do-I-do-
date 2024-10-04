@@ -1,6 +1,6 @@
 # Intro
 
-*Hi I am Visuals, I am a Sigma, but heres some things that make me Sigma!
+*Hi I am Visuals, I am a Sigma, but heres some things that make me Sigma!*
 
 # Co-Owner In Elixir
 

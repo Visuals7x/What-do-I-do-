@@ -36,7 +36,7 @@
 
 [Click to add me!](https://discord.gg/qUm8KrPj)
 
-*If it doesn't work add me manually! Username is "connorlol.w" or ping me in one of the servers above!
+*If it doesn't work add me manually! Username is "connorlol.w" or ping me in one of the servers above!*
 
 # End
 
